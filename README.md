@@ -13,5 +13,5 @@ Part time Dev :man_technologist:
 ## About me 
 
 My innovations impact the communities.
-I'm a social innovator based in Pune, India who enjoys building things that impact the community. I develop exceptional products and deploy those in the community around.!
+I'm a social innovator based in Pune, India who enjoys building things that impact the community. I develop exceptional products and deploy those in the community around!
 
