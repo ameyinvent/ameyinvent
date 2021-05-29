@@ -7,8 +7,6 @@ Innovation :man_technologist: | Communities 👾 | Wanderlust :earth_americas:
 
 My innovations impact the communities.
 
-Full time Project Manager :office_worker:
-Part time Dev :man_technologist:
 
 ## About me 
 
